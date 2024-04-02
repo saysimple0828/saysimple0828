@@ -1,4 +1,3 @@
-![%EC%A6%9D%EB%AA%85%EC%82%AC%EC%A7%84.jpg](https://prod-files-secure.s3.us-west-2.amazonaws.com/2650c313-5343-4bb5-a7c4-3e2c143c6d25/6057f8ef-45bd-4314-9ff7-a7a0810ce977/ECA69DEBAA85EC82ACECA784.jpg)
 
 > About Me
 > 
